@@ -3,7 +3,7 @@
 
 Freshman at the University of California Santa Cruz (UCSC) seeking internship opportunities in the Computer Science/Engineering and Robotics industry. 
 
-More info @ **[mtbiker-s.github.io](https://mtbiker-s.github.io/)**
+More info @ **[montanarsanchez.io](https://mtbiker-s.github.io/)**
 
 *****
 
